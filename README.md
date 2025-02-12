@@ -8,13 +8,13 @@
 
 ## 手机端下载
 
-**📲 安卓：** [APK 直通车下载](https://xnkjyun.com/zhs/?code=xhs)  
-**🍏 iOS：** [点这里](https://xnkjyun.com/zhs/?code=xhs)
+**📲 安卓：** [APK 直通车下载](https://www.xiaoniuyun.cc/register/zhs?code=xhs)  
+**🍏 iOS：** [点这里](https://www.xiaoniuyun.cc/register/zhs?code=xhs)  
 
 ## 电脑端下载
 
-🖥 **Windows：** [下载](https://xnkjyun.com/zhs/?code=xhs)  
-**🍎 macOS：** [下载](https://xnkjyun.com/zhs/?code=xhs)
+🖥 **Windows：** [下载](https://www.xiaoniuyun.cc/register/zhs?code=xhs)  
+**🍎 macOS：** [下载](https://www.xiaoniuyun.cc/register/zhs?code=xhs)
 
 ## 📩 联系方式  
 
